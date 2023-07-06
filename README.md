@@ -1,1 +1,1 @@
-# rsschool-cv
+https://zxcart.github.io/rsschool-cv/
